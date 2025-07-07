@@ -5,7 +5,7 @@
 
 　
 <p>𐃬𐃬　aliases :</p>
-<p><b>Ashley</b>, Erreur (referencing error sans), Peel, Ash if you feel like it</p>
+<p><b>Ashley</b>, Erreur (referencing error sans), Peel, Ink, Vial, Paint, Ash if you feel like it</p>
 　
 <p>𐃬𐃬　boundary / about :</p>
 <p>I am nonbinary and aroace, I support <b>disability pride</b> and <b>all of them</b>. </p>
