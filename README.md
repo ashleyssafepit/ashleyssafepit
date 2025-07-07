@@ -1,5 +1,5 @@
 
-image soon
+<p>image soon</p>
 　
 <p>𐃬𐃬　boundary / about</p>
 <p>I am nonbinary and aroace. I support <b>disability pride</b> and <b>all of them</b>. </p>
