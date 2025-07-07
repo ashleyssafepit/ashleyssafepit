@@ -5,13 +5,13 @@
 
 　
 <p>𐃬𐃬　aliases / pronouns :</p>
-<p><b>Ashley</b>, Erreur (referencing error sans), Peel, Ink, Vial, Paint, Sonic, Shadow Ash if you feel like it / they he it kit </p>
+<p><b>Ashley</b>, Erreur (referencing error sans), Ink, Vial, Paint, Sonic, Shadow, Ash if you feel like it. my preferable pronouns are <b>they</b> he it kit </p>
 　
 <p>𐃬𐃬　boundary / about :</p>
 <p>I am nonbinary and aroace, I support <b>disability pride</b> and <b>all of them</b>. </p>
-<p>If something about me is private, I want to keep it that way. do not pressure me for further personal informations such as beliefs, age, history and so on.</p>
-<p>communicate with me if you feel any kind of issue with me! I don't usually encounter this, but there are always some uncomfortable moments</p>
+<p>If something about me is private, I want to keep it that way. do not pressure me for further personal informations <b>unless it's a positive thing I want to share</b>.</p>
+<p>communicate with me if you feel any kind of issue with me! I don't usually encounter this</p>
 <p>I do not engage in lack of real-world, or with people who always water down terms (ask me what I truly mean by this!)</p>
 　
 <p>𐃬𐃬　my interests :</p>
-<p>only if you're a close friend</p>
+<p>secret, see you in-game</p>
