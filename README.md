@@ -1,3 +1,6 @@
+
+image soon
+　
 <p>𐃬𐃬　boundary / about</p>
 <p>I am nonbinary and aroace. I support <b>disability pride</b> and <b>all genders</b>. </p>
 <p>communicate with me if you feel any kind of issue with me! such as, behavior, beliefs, ships, and so on (I don't usually encounter this)</p>
