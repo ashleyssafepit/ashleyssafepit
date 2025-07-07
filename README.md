@@ -5,7 +5,7 @@
 
 　
 <p>𐃬𐃬　aliases — pronouns :</p>
-<p><b>Ashley</b>, Erreur (error sans), Ash if you feel like it — my preferable pronouns are <b>they</b> he it kit </p>
+<p><b>Ashley</b>, Erreur, Error, Ash if you feel like it — my preferable pronouns are <b>they them</b></p>
 　
 <p>𐃬𐃬　boundary / about :</p>
 <p>I am nonbinary and aroace, I support <b>disability pride</b> and <b>all of them</b>. </p>
@@ -14,4 +14,4 @@
 <p>I do not engage in lack of real-world, or with people who always have to water down online terms.</p>
 　
 <p>𐃬𐃬　my interests :</p>
-<p>secret, see you in-game!</p>
+<p>secret, see you in-game! (I like sonic the hedgehog)</p>
