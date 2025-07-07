@@ -2,10 +2,10 @@
 
 ![](https://64.media.tumblr.com/07d3b7f8ec3a9942d21d27308414fda4/c28daed5d50cdf70-23/s2048x3072/4410d871574f8f0e37bd542f6a6399f5377f8126.pnj)
 
-![](https://www.tumblr.com/classicccino/748023056101933056/made-some-stamps-i-was-testing-around-them)
-
 <p>𐃬𐃬　aliases — pronouns :</p>
 <p><b>Ashley</b>, Erreur, Error, Ash if you feel like it — my preferable pronouns are <b>they them</b></p>
+
+![](https://www.tumblr.com/classicccino/748023056101933056/made-some-stamps-i-was-testing-around-them)
 　
 <p>𐃬𐃬　boundary / about :</p>
 <p>I am nonbinary and aroace, I support <b>disability pride</b> and <b>all of them</b>. </p>
