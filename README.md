@@ -6,7 +6,7 @@
 <p><b>Ashley</b>, Erreur, Error, Ash if you feel like it — my preferable pronouns are <b>they them</b></p>
 
 ![](https://www.tumblr.com/sister-lucifer/761833808413720576/error-sans-divider-and-my-soul-is-urs)
-　
+
 <p>𐃬𐃬　boundary / about :</p>
 <p>I am nonbinary and aroace, I support <b>disability pride</b> and <b>all of them</b>. </p>
 <p>If something about me is private, I want to keep it that way, <b>unless it's a positive thing that I want to share</b>.</p>
