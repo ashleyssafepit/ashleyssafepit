@@ -5,7 +5,7 @@
 <p>𐃬𐃬　aliases — pronouns :</p>
 <p><b>Ashley</b>, Erreur, Error, Ash if you feel like it — my preferable pronouns are <b>they them</b></p>
 
-![](https://www.tumblr.com/classicccino/748023056101933056/made-some-stamps-i-was-testing-around-them)
+![](https://www.tumblr.com/kratos-sins/757349521606983680/undertale-au-graphics)
 　
 <p>𐃬𐃬　boundary / about :</p>
 <p>I am nonbinary and aroace, I support <b>disability pride</b> and <b>all of them</b>. </p>
