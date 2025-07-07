@@ -11,7 +11,7 @@
 <p>I am nonbinary and aroace, I support <b>disability pride</b> and <b>all of them</b>. </p>
 <p>If something about me is private, I want to keep it that way, <b>unless it's a positive thing that I want to share</b>.</p>
 <p>communicate with me if you feel any kind of issue with me! (I don't usually encounter this)</p>
-<p>I do not engage in lack of real-world, or with people who always have to water down online terms</p>
+<p>I do not engage in lack of real-world, or with people who always have to water down online terms.</p>
 　
 <p>𐃬𐃬　my interests :</p>
-<p>secret, see you in-game</p>
+<p>secret, see you in-game!</p>
