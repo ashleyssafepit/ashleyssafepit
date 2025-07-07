@@ -5,7 +5,7 @@
 <p>𐃬𐃬　aliases — pronouns :</p>
 <p><b>Ashley</b>, Erreur, Error, Ash if you feel like it — my preferable pronouns are <b>they them</b></p>
 
-![](https://www.tumblr.com/sister-lucifer/761833808413720576/error-sans-divider-and-my-soul-is-urs)
+<img src="https://www.tumblr.com/sister-lucifer/761833808413720576/error-sans-divider-and-my-soul-is-urs"></img>
 
 <p>𐃬𐃬　boundary / about :</p>
 <p>I am nonbinary and aroace, I support <b>disability pride</b> and <b>all of them</b>. </p>
@@ -13,7 +13,7 @@
 <p>communicate with me if you feel any kind of issue with me! (I don't usually encounter this)</p>
 <p>I do not engage in lack of real-world, or with people who always have to water down online terms.</p>
 
-![](https://www.tumblr.com/sister-lucifer/761833808413720576/error-sans-divider-and-my-soul-is-urs)
+<img src="https://www.tumblr.com/sister-lucifer/761833808413720576/error-sans-divider-and-my-soul-is-urs"></img>
 
 <p>𐃬𐃬　my interests :</p>
 <p>secret, see you in-game! (I like sonic the hedgehog)</p>
