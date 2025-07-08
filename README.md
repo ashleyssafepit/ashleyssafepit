@@ -16,4 +16,4 @@
 <img src="https://64.media.tumblr.com/2fa2cb03251d9d8d92b471d0c743c6ee/a4a6afcd9db8a8b5-ab/s100x200/1c8ca503d33e26b3212e89ce8f55ac26af76acef.gifv"></img>
 
 <p>𐃬𐃬　my interests :</p>
-<p>secret, see you in-game! (I like sonic the hedgehog)</p>
+<p>secret, see you in-game! (I like sonic the hedgehog) profile picture credit: [link](https://www.tumblr.com/kazthisnuts?source=share)</p>
