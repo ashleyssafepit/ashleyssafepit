@@ -10,7 +10,7 @@
 <p>𐃬𐃬　boundary / about :</p>
 <p>I am nonbinary and +, I support <b>disability pride</b> and <b>all of them</b>. </p>
 <p>If something about me is private, I want to keep it that way, <b>unless it's a positive thing that I want to share</b>.</p>
-<p>communicate with me if you feel any kind of issue with me! (I don't usually encounter this, I want to make sure everything is positive.)</p>
+<p>communicate with me if you feel any kind of issue with me! (I don't usually encounter this)</p>
 <p>I do not engage in lack of real-world, or with people who always have to water down online terms.</p>
 
 <img src="https://64.media.tumblr.com/2fa2cb03251d9d8d92b471d0c743c6ee/a4a6afcd9db8a8b5-ab/s100x200/1c8ca503d33e26b3212e89ce8f55ac26af76acef.gifv"></img>
